@@ -1,1 +1,1 @@
-# edi-o-de-logo-marca
+# edite-logo-marca
